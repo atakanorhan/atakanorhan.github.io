@@ -1,1 +1,0 @@
-# atakanorhan.github.io
